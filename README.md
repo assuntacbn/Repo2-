@@ -1,5 +1,5 @@
 # Repo2-
-"Double D
+Double D
 Big full breasts on my baby
 (Yo we going to Florida)
 Triple weight
@@ -50,5 +50,5 @@ Love lost, lost
 Love, love
 Love lost
 Love, love
-Love lost"
+Love lost
 - Frank Ocean 
